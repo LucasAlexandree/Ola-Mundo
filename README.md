@@ -49,7 +49,7 @@ Podemos  __*misturar*__ configurações
 ![chega-de-pindaiba-ze-carioca-tira-uma-selfie-com-celular-de-ultima-geracao-1596052977612_v2_450x337](https://user-images.githubusercontent.com/98123374/154068929-ac8db400-f9bf-44bd-82b6-3d77c108f051.jpg)
  
 
-##  [Acesse Meu Git-hub](https://https://github.com/LucasAlexandree)
+##  [Acesse Meu Git-hub](https://github.com/LucasAlexandree)
 
 ---
 
