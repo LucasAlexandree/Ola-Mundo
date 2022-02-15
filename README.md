@@ -50,7 +50,7 @@ Podemos  __*misturar*__ configurações
  
 
 ##  [Acesse Meu Git-hub](https://github.com/LucasAlexandree)
-
+##   [Acesse Meu INSTAGRAM](https://instagram.com/lucasalexandree21)
 ---
 
 HORA | DIA/ALMOÇO | DATA 
